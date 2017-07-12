@@ -1,12 +1,7 @@
 # hello-world
 kdsb.ajsndkjadnam
-COMMIT UTILIZANDO O GIT
+COMMIT UTILIZANDO O GIThgghsdgfhd
 dadnkasnd,as
-sad
-as
-das
-d
-asd
-a
+sadhgfdgfh
 d
 as
